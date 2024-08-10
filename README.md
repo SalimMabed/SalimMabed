@@ -1,7 +1,7 @@
 👋 Hi, I’m @SalimMabed  
 💞️ I’m looking to collaborate on any project that can enrich my knowledge  
 🤖 I’m particularly interested in artificial intelligence  
-📫 How to reach me: mabedsalim8@gmail.com  
+📫 How to reach me: mabedsalim2019@gmail.com  
                     LinkedIn: [Salim Mabed]((https://www.linkedin.com/in/salim-mabed-27308a227/))
 
 <!---
